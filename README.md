@@ -10,6 +10,8 @@ Ik you found me on ponytown .. .. . *heh* i spend half of my life here
 
 ALWAYS FEEL FREE TO INTERACT !!!! I'm very nice and kind and sweet and friendly and (BEWARE of the freaky freak) yes 
 
+# SIGN ATABOOK SUCKERS ‼️‼️‼️‼️‼️ /hj
+
 *[Very say gex vampire] whispers: NO CZEMU JA MAM BYC DILFEM JAKIMS*
 
 I'm actually a rlly nice person .. . . i just don't know how to talk to ppl🥀🥀 I MAY ignore you but only because I'm scared😭✌️
