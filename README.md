@@ -12,7 +12,7 @@ Ik you found me on ponytown .. .. . *heh* i spend half of my life here
 
 ALWAYS FEEL FREE TO INTERACT !!!! I'm very nice and kind and sweet and friendly and (BEWARE of the freaky freak) yes 
 
-# SIGN ATABOOK SUCKERS ‼️‼️‼️‼️‼️ /hj
+# SIGN ATABOOK SUCKERS ‼️‼️‼️‼️‼️ /j
 
 *[Very say gex vampire] whispers: NO CZEMU JA MAM BYC DILFEM JAKIMS*
 
