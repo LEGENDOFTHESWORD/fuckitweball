@@ -18,7 +18,7 @@ ALWAYS FEEL FREE TO INTERACT !!!! I'm very nice and kind and sweet and friendly 
 
 I'm actually a rlly nice person .. . . i just don't know how to talk to ppl🥀🥀 I MAY ignore you but only because I'm scared😭✌️
 
-Idk what else to say . . .so .. . uh ....  *wish you a merry christmas* /j 
+Idk what else to say . . .so .. . uh ....  *wish you a merry christmas brotato chip* /j 
 
 
 *[Very say gex vampire] spreads them cheekas*
