@@ -22,11 +22,8 @@ Idk what else to say . . .so .. . uh ....  *wish you a merry christmas brotato c
 
 
 *[Very say gex vampire] spreads them cheekas*
-
 *[say gex] thinks: moans loudly*
-
 *[Very say gex vampire] im not even in idiot*
-
 *[say gex] thinks: sybau*
 
 
@@ -34,21 +31,13 @@ Idk what else to say . . .so .. . uh ....  *wish you a merry christmas brotato c
 
 
 *[are we deaduzz] thinks: XDDDDDDDDD*
-
 *[are we deaduzz] thinks: eeeeee*
-
 *[are we deaduzz] thinks: o to chodzi*
-
 *[deelf shadow] CO*
-
 *[are we deaduzz] thinks: pokaze ci potem*
-
 *[are we deaduzz] thinks: o co chodzi*
-
 *[deelf shadow] a sonic ile ma..*
-
 *[are we deaduzz] thinks: okej*
-
 *[are we deaduzz] thinks: 16*
 
 
@@ -56,5 +45,6 @@ Idk what else to say . . .so .. . uh ....  *wish you a merry christmas brotato c
 
 
 *[are we deaduzz] thinks: dad*
-
 *[deelf shadow] Good boy*
+
+this is what employment does to a person btw🫩✌️
