@@ -1,12 +1,12 @@
 # fuckitweball
 
-I DO NOT KNOW HOW TO USE TS
+# I DO NOT KNOW HOW TO USE TS
 
 HI HELLO !! 💨 it's your favorite boy here /j 
 
 I'm Lance/Yakov ! 
 
-Ik you found me on ponytown .. .. . heh i spend half of my life here 
+Ik you found me on ponytown .. .. . *heh* i spend half of my life here 
 
 ALWAYS FEEL FREE TO INTERACT !!!! I'm very nice and kind and sweet and friendly and (BEWARE of the freaky freak) yes 
 
@@ -14,7 +14,7 @@ ALWAYS FEEL FREE TO INTERACT !!!! I'm very nice and kind and sweet and friendly 
 
 I'm actually a rlly nice person .. . . i just don't know how to talk to ppl🥀🥀 I MAY ignore you but only because I'm scared😭✌️
 
-Idk what else to say . . .so .. . uh ....  wish you a merry christmas /j 
+Idk what else to say . . .so .. . uh ....  *wish you a merry christmas* /j 
 
 
 [Very say gex vampire] spreads them cheekas 
