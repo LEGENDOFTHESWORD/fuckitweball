@@ -1,4 +1,4 @@
-# fuckitweball
+tbh icl vro ts pmo sm🥀 /j
 
 # I DO NOT KNOW HOW TO USE TS
 
