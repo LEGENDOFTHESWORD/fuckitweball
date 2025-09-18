@@ -2,6 +2,8 @@ tbh icl vro ts pmo sm🥀 /j
 
 # I DO NOT KNOW HOW TO USE TS
 
+*sigh .. . i need to remake my strawpage*
+
 HI HELLO !! 💨 it's your favorite boy here /j 
 
 I'm Lance/Yakov ! 
